@@ -13,4 +13,4 @@ actually, that is all that frozen fog works for so far. send me a comment on my 
 
 # Give Me Feedback!
 
-give me a comment on the frozen fog page of my website www.monsterkeeper.com and compain about how bad this game sucked! developers love when people complain. then we can make the game better next time.
+give me a comment on the frozen fog page of my website www.monsterkeeper.com and complain about how bad this game sucked! developers love when people complain. then we can make the game better next time.
